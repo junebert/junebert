@@ -8,4 +8,4 @@ mysti or jester .. they / she / he .. 18
 
 -my fav ships : gency .  moicy . pharmercy . mekamechanic . scrapangel . bapweaver . reaper76 . sunshrine ( feel free to int with me if i'm one of the characters :D )
 
- genji and cassidy's wife :3c
+ big genji and cass fan
