@@ -6,6 +6,6 @@ mysti or jester .. they / she / he .. 18
 
 -int : overwatch . valorant . homestuck . pokemon . persona . deltarune . atla . saiki k . animal jam . and mitski fans interact ! or just interact if you're silly . . !
 
--my fav ships : gency .  moicy . pharmercy . mekamechanic . scrapangel . bapweaver . reaper76 . sunshrine ( feel free to int with me if i'm one of the characters :D )
+-my fav ships : gency .  moicy . pharmercy . mekamechanic . scrapangel . bapweaver . reaper76 . sunshrine . reyge . nanobomb . fadeshock ( feel free to int with me if i'm one of the characters :D )
 
  big genji and cass fan
