@@ -6,6 +6,6 @@
 
 -int : overwatch . valorant . homestuck . pokemon . persona . deltarune . atla . saiki k . animal jam . and mitski fans interact ! or just interact if you're silly . . !
 
--my fav ships : moicy . gency . mekamechanic . bapweaver . scrapangel .  reaper76 . sunshrine . reyge . nanobomb . fadeshock . arasol . rosemary ( feel free to int with me if i'm one of the characters :D )
+-my fav ships : moicy . gency . mekamechanic . bapweaver . scrapangel .  reaper76 . sunshrine . makoharu . reyge . nanobomb . fadeshock . arasol . rosemary ( feel free to int with me if i'm one of the characters :D )
 
  big genji and cass fan
