@@ -6,4 +6,4 @@
 
 -int : overwatch . valorant . homestuck . pokemon . persona . deltarune . atla . saiki k . animal jam . and mitski fans interact ! or just interact if you're silly . . !
 
- big genji and cass fan
+ so very obsessed with genji shimada and cole cassidy
