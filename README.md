@@ -7,3 +7,5 @@
 -int : overwatch . valorant . homestuck . pokemon . persona . deltarune . atla . saiki k . animal jam . and mitski fans interact ! or just interact if you're silly . . !
 
  so very obsessed with genji shimada and cole cassidy
+
+ (my battlenet is Mystian#11680 if u ever wanna play ow2 together ;D)
