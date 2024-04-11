@@ -1,11 +1,9 @@
 ### mysti . any pronouns . 18
 
--byi : i'm probably afk 90% of the time . sorry if i don't respond fast enough . whisper me to ensure that i see your message ! c + h is fine . i'm also very shy so if i do not talk at all then don't be offended . that's just how i am . sorry .
+byi - most of the time im afk so w2i, i might not respond if i don't feel like talking, don't be offended pls . c+h and whatever else is fine idc
 
--dni : basic dni criteria . under 15 . pro / comshippers 
+dni - don't be weird also if you ship genyatta i h8 you
 
--int : overwatch . valorant . homestuck . pokemon . persona . deltarune . atla . saiki k . animal jam . and mitski fans interact ! or just interact if you're silly . . !
+i like overwatch, homestuck, pokemon, persona 3 & 5, saiki k, and mitski
 
- so very obsessed with genji shimada and cole cassidy
-
- (my battlenet is Mystian#11680 if u ever wanna play ow2 together ;D)
+very very big fan of genji 
