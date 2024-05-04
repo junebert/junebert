@@ -8,3 +8,5 @@ dni - don't be weird also if you ship genyatta i h8 you
 i like overwatch, homestuck, pokemon, persona 3 & 5, saiki k, mitski, valorant, etc etc
 
 very very big fan of genji 
+
+would you rather have unlimited bacon but no more games or games (unlimited games) and no games
