@@ -1,12 +1,2 @@
-### mysti or jester | they/any pronouns | 9teen
-
-byi - most of the time im afk so w2i, i might not respond if i don't feel like talking, don't be offended pls .
-c+h and whatever else is fine idc
-
-dni - don't be weird also if you ship genyatta i h8 you
-
-i like overwatch, homestuck, pokemon, persona 3 & 5, saiki k, mitski, valorant, etc etc
-
-very very big fan of genji 
-
+![aeweekaskaa](https://github.com/cannedJester/cannedJester/assets/154295482/b811ed2e-5d91-4b18-be05-e47df9936872)
 would you rather have unlimited bacon but no more games or games (unlimited games) and no games
