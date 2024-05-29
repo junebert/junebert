@@ -1,6 +1,6 @@
-mysti/jester , they/any , 19
+# mysti/jester , they/any , 19
 
-https://dni-criteria.carrd.co/ + proshippers dni
+# https://dni-criteria.carrd.co/ + proshippers dni
 
 working on a better readme 😓
 
