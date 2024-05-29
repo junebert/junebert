@@ -1,4 +1,4 @@
-mysti/jester , they/any , 19
+mysti/jester , they/any pronouns , 19
 
 https://dni-criteria.carrd.co/ + proshippers dni
 
