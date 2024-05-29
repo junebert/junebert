@@ -1,5 +1,7 @@
-![aeweekaskaa](https://github.com/cannedJester/cannedJester/assets/154295482/b811ed2e-5d91-4b18-be05-e47df9936872) 
+mysti/jester , they/any , 19
 
-* https://dni-criteria.carrd.co/ , also proshippers DNI!
+https://dni-criteria.carrd.co/ + proshippers dni
+
+working on a better readme 😓
 
 would you rather have unlimited bacon but no more games or games (unlimited games) and no games
