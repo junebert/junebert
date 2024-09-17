@@ -1,4 +1,6 @@
-mysti/jester , they/he/she , 19
+call me mits , mysti , or jester :P
+
+they/he/she , 19
 
 basic dni and com/proshippers do not interact please :)
 
