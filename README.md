@@ -1,7 +1,5 @@
-mysti/jester , they/any pronouns , 19
+mysti/jester , they/he/she , 19
 
-https://dni-criteria.carrd.co/ + proshippers dni
-
-working on a better readme 😓
+basic dni and com/proshippers do not interact please :)
 
 would you rather have unlimited bacon but no more games or games (unlimited games) and no games
