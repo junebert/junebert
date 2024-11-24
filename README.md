@@ -1,7 +1,7 @@
-call me mits , mysti , or jester :P
+mysti or june 
 
-they/he/she , 19
+they/them , 19
 
-basic dni and com/proshippers do not interact please :)
+basic dni and com/proshippers do not interact please 
 
 would you rather have unlimited bacon but no more games or games (unlimited games) and no games
