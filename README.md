@@ -1,5 +1,3 @@
-# mysti or june , 19
-
-they/them
+# mysti or june . they/them , 19
 
 basic dni and com/proshippers do not interact please 
