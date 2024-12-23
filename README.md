@@ -1,7 +1,5 @@
-mysti or june 
+# mysti or june , 19
 
-they/them , 19
+they/them
 
 basic dni and com/proshippers do not interact please 
-
-would you rather have unlimited bacon but no more games or games (unlimited games) and no games
